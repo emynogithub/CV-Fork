@@ -47,3 +47,11 @@ Jan 2023 – Jun 2023
 **shedman Kavinoq**  
 Tech Lead @ Kavinoq Ltd 
 📱 12456789010  
+
+
+## 👤 Team member
+**Emelie Andrew**  
+Tech student @ Kavinoq Ltd 
+📱 0901787577_
+
+
