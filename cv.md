@@ -54,4 +54,8 @@ Tech Lead @ Kavinoq Ltd
 Tech student @ Kavinoq Ltd 
 📱 0901787577_
 
+## 👤 Team member
+**Emeka Solomon**  
+Tech student @ Kavinoq Ltd 
+📱 12344556677
 
